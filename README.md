@@ -7,7 +7,6 @@
 - 👯 **I’m looking to collaborate on opensource projects related to back-end or front-end.**
 - 📫 **How to reach me, mail to: xzq77xzq@163.com**
 - ⚡  **Fun fact: The best investment is to invest in yourself!**
-- 😊 **同时也在积极找寻工作机会，参加春招**
 
 <img src="https://media.giphy.com/media/LnQjpWaON8nhr21vNW/giphy.gif" width="60"> <em><b>I'd love to connect with different people. Send me 👋 i'll be happy to meet you</b> 😊</em>
 
